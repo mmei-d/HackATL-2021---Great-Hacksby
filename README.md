@@ -1,1 +1,1 @@
-# HackATL-2021---Great-Hacksby
+# HackATL.org 2021: "The Great Hacksby"
